@@ -1,1 +1,1 @@
-# hello-world
+# hello-world, I am new to this world, I am a care provider for my husband and my daughter age 10. My daughters feel that I need to have a new world skill to fall on incase anything were to change, or as an addition too, so I can work both from home as a caregiver and still have a career. I beleve that technology is one of the best career moves I can make, I have several children who are in this world and thrive, and they, as I, believe I can be a good fit in this field, so I am preparng myself to enter the computer information system job market.
